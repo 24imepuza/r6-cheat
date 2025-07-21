@@ -1,4 +1,4 @@
-# 🎯 R6 Cheat - Aimbot, ESP & Wallhack Dominate in Rainbow Six Siege X
+# 🎯 R6 Cheat: Aimbot, Wallhack & ESP Tools for Victory in Rainbow Six Siege X
 
 **R6 Cheat** is the most reliable and feature-packed cheat suite available for Rainbow Six Siege. Our cheat is developed for both legit and rage users who want full control in tactical play, ranked matchmaking, or fun custom games. With enhanced ESP, highly configurable aimbot, a functional unlock-all tool, and a secure HWID spoofer, **R6S Cheat** sets a new standard.
 
